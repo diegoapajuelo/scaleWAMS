@@ -27,7 +27,7 @@ I'm a keen student looking to learn more about how humans interact with computer
 
 I've worked on optimizing the UX on websites, sales pages, etc. in the past, but have always wanted to know more about how the prebuilt tools I use worked (such as Clickfunnels, Figma, Notion). There's clearly room for improvement.
 
-I graduated early this June 2023 (Applying to University 2024) and have been working on projects outside of my comfort zone, such as this.
+I graduated early at 17 this June 2023 (Applying to University 2024) and have been working on projects outside of my comfort zone, such as this.
 
 -Diego
 
